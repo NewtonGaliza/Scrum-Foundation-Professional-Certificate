@@ -1,1 +1,1 @@
-# Scrum-Foundation-Professional-Certificate
+# Scrum Foundation Professional Certificate (SFPC)
